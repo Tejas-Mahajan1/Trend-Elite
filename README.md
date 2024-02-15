@@ -1,3 +1,3 @@
 
-## Trend_ELite
+## Trend-ELite
 
